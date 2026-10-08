@@ -1,0 +1,1 @@
+BuildWeb TZ premium redesign. Open index.html in a browser. Uses the original project screenshots and founder portrait recovered from the earlier portfolio package. All project images are in assets/. WhatsApp: +255 784 452 159. Email: buildwebtz@gmail.com.
